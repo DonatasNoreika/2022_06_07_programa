@@ -1,0 +1,1 @@
+Čia yra Donato superprograma
